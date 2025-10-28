@@ -2,7 +2,7 @@
 
 ### Hey there! 👋
 
-I'm Csgt Fris Wardani, proudly serving in the Indonesian Armed Forces with honor. 💂
+I'm Second Liutenant Fris Wardani, proudly serving in the Indonesian Armed Forces with honor. 💂
 
 ### A bit about me:
 - **Interests:** Anything and everything that makes me happy! 😊
